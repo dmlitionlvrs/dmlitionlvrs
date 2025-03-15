@@ -35,7 +35,7 @@
 
 ### ~ interests / hobbies
 
-__tcm__ , halo , __resident evil__ , postal , cod , __analog horror__ , rdr2 , half life , tf2 , __8:11__ , dead by daylight, zomboid, idv, transformers, bfdi, castle crashers , dialtown , deltarune , __hannibal__ , breaking bad, malcolm in the middle , the last of us , sherlock holmes , robotics , animating , writing , drawing ... uh .
+__tcm__ , halo , __resident evil__ , postal , __invincible__, cod , __analog horror__ , rdr2 , half life , tf2 , __8:11__ , dead by daylight, zomboid, idv, transformers, bfdi, castle crashers , dialtown , deltarune , __hannibal__ , breaking bad, malcolm in the middle , the last of us , sherlock holmes , robotics , animating , writing , drawing ... and more .
 
 ["I know this love of mine will never die and I love her"](https://open.spotify.com/track/7x4b0UccXSKBWxWmjcrG2T?si=690f09ba6086409a)
 
