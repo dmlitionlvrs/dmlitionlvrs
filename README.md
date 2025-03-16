@@ -1,10 +1,10 @@
-## "My family's always been in meat!"
+## "we will commit acts of misery!"
 
 <!--
 **dmlitionlvrs/dmlitionlvrs** is a ✨ _special_ ✨ repository because its README.md (this file) appears on your GitHub profile.
 -->
 
-![ezgif-2658be885f5dc](https://github.com/user-attachments/assets/8a3c1514-462b-4dd8-87cf-05b795885c6d)
+![ezgif-2658be885f5dc](https://media.discordapp.net/attachments/1134119448266166303/1350676981263503522/ezgif-4d220a10fcb02c.gif?ex=67d79b76&is=67d649f6&hm=8d55911115c742e623f80c546eca1a813a40cb49f3d0cd33bda31ccfea024dc4&=&width=350&height=350)
 
 
 <small>(ᴅᴏ ɴᴏᴛ ɪɴᴛᴇʀᴀᴄᴛ ɪꜰ ʏᴏᴜ ʜᴀᴠᴇ ᴛᴏᴜᴄʜ ᴛʀɪɢɢᴇʀꜱ ᴏʀ ɢᴇᴛ ᴏꜰꜰᴇɴᴅᴇᴅ ᴡʜᴇɴ ᴘᴇᴏᴘʟᴇ ꜱɪᴛ ɴᴇᴀʀʙʏ ʏᴏᴜ. ᴛʜɪꜱ ɪꜱ ᴀ ᴘᴏɴʏ ɢᴀᴍᴇ.)
@@ -19,7 +19,7 @@
 
 ɪ ᴅᴏɴᴛ ᴛᴀʟᴋ ᴀʙᴏᴜᴛ ᴅɪꜱᴏʀᴅᴇʀꜱ ᴏꜰᴛᴇɴ. ɪᴛ ꜱʜᴏᴜʟᴅ ɴᴏᴛ ʙᴇ ᴀ ʜᴏʙʙʏ ɴᴏʀ ꜱᴏᴍᴇᴏɴᴇꜱ ᴡʜᴏʟᴇ ᴘᴇʀꜱᴏɴᴀʟɪᴛʏ .
 
-ɪ ᴀᴍ ꜱᴇᴠᴇɴᴛᴇᴇɴ. ᴀɴʏᴏɴᴇ ᴜɴᴅᴇʀ ꜰᴏᴜʀtᴇᴇɴ ᴅɴɪ
+ɪ ᴀᴍ ʙᴏᴅɪʟʏ ꜱᴇᴠᴇɴᴛᴇᴇɴ. ᴀɴʏᴏɴᴇ ᴜɴᴅᴇʀ ꜰᴏᴜʀtᴇᴇɴ ᴅɴɪ
 
 ────────────────────────────────────────────────────────────
 
@@ -35,10 +35,10 @@
 
 ### ~ interests / hobbies
 
-__tcm__ , halo , __resident evil__ , postal , __invincible__, cod , __analog horror__ , rdr2 , half life , tf2 , __8:11__ , dead by daylight, zomboid, idv, transformers, bfdi, castle crashers , dialtown , deltarune , __hannibal__ , breaking bad, malcolm in the middle , the last of us , sherlock holmes , robotics , animating , writing , drawing ... and more .
+__tcm__ , halo , __resident evil__ , postal , __invincible__, cod , __analog horror__ , rdr2 , half life , tf2 , __8:11__ , dead by daylight, zomboid, idv, __transformers__, bfdi, castle crashers , dialtown , deltarune , __hannibal__ , breaking bad, malcolm in the middle , the last of us , sherlock holmes , robotics , animating , writing , drawing ... and more .
 
-["I know this love of mine will never die and I love her"](https://open.spotify.com/track/7x4b0UccXSKBWxWmjcrG2T?si=690f09ba6086409a)
+["you're the only soldier I don't want to strangle"](https://open.spotify.com/track/1bBHEYHcRVvvff6tugQwS7?si=725d2d7e87a446e9)
 
-![ezgif-2b530d5410587](https://github.com/user-attachments/assets/c809e941-1638-442a-ba96-3698095ad9a3)
+![ezgif-2b530d5410587](https://media.discordapp.net/attachments/1347662367919702037/1348046732851675208/Untitled539_20250308153620.png?ex=67d7445a&is=67d5f2da&hm=5aa7a3ebaed9f463bc878e9c32a20c8846c6124330133bab4546f77430bf7c94&=&format=webp&quality=lossless&width=1381&height=777)
 
 <sub>never doing this again god i hate coding on this website</sub>
