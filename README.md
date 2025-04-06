@@ -4,7 +4,7 @@
 **dmlitionlvrs/dmlitionlvrs** is a ✨ _special_ ✨ repository because its README.md (this file) appears on your GitHub profile.
 -->
 
-![ezgif-2658be885f5dc](https://media.discordapp.net/attachments/1134119448266166303/1350676981263503522/ezgif-4d220a10fcb02c.gif?ex=67d79b76&is=67d649f6&hm=8d55911115c742e623f80c546eca1a813a40cb49f3d0cd33bda31ccfea024dc4&=&width=350&height=350)
+![ezgif-2658be885f5dc](https://media.discordapp.net/attachments/1194907856084934676/1358195527422054550/Untitled15_20250405164357.png?ex=67f2f5a7&is=67f1a427&hm=59f3a9a8da75a412c271b2516f812c99a6d7b0a747eb730bcf74c7c98c9a0d21&=&format=webp&quality=lossless)
 
 
 <small>(ᴅᴏ ɴᴏᴛ ɪɴᴛᴇʀᴀᴄᴛ ɪꜰ ʏᴏᴜ ʜᴀᴠᴇ ᴛᴏᴜᴄʜ ᴛʀɪɢɢᴇʀꜱ ᴏʀ ɢᴇᴛ ᴏꜰꜰᴇɴᴅᴇᴅ ᴡʜᴇɴ ᴘᴇᴏᴘʟᴇ ꜱɪᴛ ɴᴇᴀʀʙʏ ʏᴏᴜ. ᴛʜɪꜱ ɪꜱ ᴀ ᴘᴏɴʏ ɢᴀᴍᴇ.)
@@ -39,6 +39,6 @@ __tcm__ , halo , __resident evil__ , postal , __invincible__, cod , __analog hor
 
 ["you're the only soldier I don't want to strangle"](https://open.spotify.com/track/1bBHEYHcRVvvff6tugQwS7?si=725d2d7e87a446e9)
 
-![ezgif-2b530d5410587](https://media.discordapp.net/attachments/1347662367919702037/1348046732851675208/Untitled539_20250308153620.png?ex=67d7445a&is=67d5f2da&hm=5aa7a3ebaed9f463bc878e9c32a20c8846c6124330133bab4546f77430bf7c94&=&format=webp&quality=lossless&width=1381&height=777)
+![ezgif-2b530d5410587](https://media.discordapp.net/attachments/1194907856084934676/1358191837419929620/ezgif-2b4f7fc88b5820.gif?ex=67f2f238&is=67f1a0b8&hm=34ed857e28bd1d77cbd62adc3ccb880f5fe6ddbf3958d066b4af004952876f36&=)
 
 <sub>never doing this again god i hate coding on this website</sub>
